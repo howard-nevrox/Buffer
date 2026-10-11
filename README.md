@@ -212,4 +212,4 @@ Buffer is offered as a full free version, with all features and updates included
 Unlock your social media potential today with Buffer! Download now and experience the full version for free!
 
 ---
-**Last updated:** 2026-10-11 17:56:58 UTC
+**Last updated:** 2026-10-11 21:47:06 UTC
